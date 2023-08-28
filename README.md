@@ -1,2 +1,2 @@
-# FruitCandyAndroid
-Fruit Candy Sweet Privacy Policy
+# 69 Studio
+69 Studio Privacy Policy
